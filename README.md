@@ -1,1 +1,1 @@
-# minkim.com
+# Hi. I'm Minkyung Kim.
